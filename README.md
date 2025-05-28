@@ -1,5 +1,5 @@
 # EVERYTHING HERE IS A WORK IN PROGRESS
-## Small bio 👋 (W.I.P)
+## Small bio (W.I.P)
 I'm an extremely addicted gamer who has over 12k hours in terraria as my username implies, on my other accounts (johnnyjj45) I work on a massive project oy mine nammed "The Story Of Legends: Reborn" (TSOL:R) or sometimes referred to as Project "Fractured space", I'll put something below later that will explain what it is.
 Not only do I live video games (or anything electronic related for that matter) but I'd also tend to roleplay (digitally), voice act, write scripts, try to make videos for YouTube, and I'm a MASSIVE lore fan.
 I may only use this github account for game related things, while using my main account (johnnyjj45) for other things like TSOL:R.
